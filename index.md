@@ -25,7 +25,7 @@ Der Papa ist seit Dezember 2019 Habilitant der Informatik an der TU Berlin und n
 
 #### Kontakt 
 
-`drheindel@protonmail.com`
+`drheindel@pm.me`
 
 
 
