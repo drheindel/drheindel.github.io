@@ -15,11 +15,11 @@ Das ist der neueste Zuwachs der Familie. 18-Monate jung, lustig, friedseelig und
 Das ist unser cleverer 5-jährige Weltenbummler, der in Kopenhagen geboren wurde und nach Abstechern nach Leipzig und Hawaii nun die Kita Buddelkiste besucht. 
 Kai wird in die Rothenburg-Grundschule eingeschult werden. 
 
-#### [Mama](https://de.linkedin.com/in/mami-yamamoto-b9293934/de-de?trk=people-guest_people_search-card)  
-Die Mama hat den Papa in Paris kennengelernt, während Ihres Forschungsaufenthaltes am Institut Pasteur, als promovierte Virologin. 
+#### [Mama](https://www.linkedin.com/in/mami-yamamoto-b9293934/) 
+Die [Mama](https://www.linkedin.com/in/mami-yamamoto-b9293934/) hat den Papa in Paris kennengelernt, während Ihres Forschungsaufenthaltes am Institut Pasteur, als promovierte Virologin. 
 
 #### [Papa](https://de.linkedin.com/in/tobias-heindel-6323922a)
-Der Papa ist seit Dezember 2019 Habilitand der Informatik an der TU Berlin und nimmt auch gerne Tipps für den Weg zur Professur entgegen. 
+Der [Papa](https://de.linkedin.com/in/tobias-heindel-6323922a) ist seit Dezember 2019 Habilitand der Informatik an der TU Berlin und nimmt auch gerne Tipps für den Weg zur Professur entgegen. 
 
 ---
 
