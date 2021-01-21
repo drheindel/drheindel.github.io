@@ -19,11 +19,12 @@ Kai wird in die Rothenburg-Grundschule eingeschult werden.
 Die [Mama](https://www.linkedin.com/in/mami-yamamoto-b9293934/) hat den Papa in Paris kennengelernt, während Ihres Forschungsaufenthaltes am Institut Pasteur, als promovierte Virologin. 
 
 #### [Papa](https://de.linkedin.com/in/tobias-heindel-6323922a)
-Der [Papa](https://de.linkedin.com/in/tobias-heindel-6323922a) ist seit Dezember 2019 Habilitand der Informatik an der TU Berlin und nimmt auch gerne Tipps für den Weg zur Professur entgegen. 
+Der [Papa](https://de.linkedin.com/in/tobias-heindel-6323922a) ist seit Dezember 2019 Habilitand der Informatik an der TU Berlin. 
 
 ---
 
 #### Kontakt 
+Wir freuen uns in jedem Fall über Ihre Nachricht. 
 
 * [`drheindel@pm.me`](mailto:drheindel@pm.me) 
 * `+49 151 45 61 75 23`
